@@ -13,7 +13,7 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/adithya-b-516ab1248/](https://www.linkedin.com/in/adithya-b-516ab1248/)
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
